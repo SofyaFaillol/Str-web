@@ -4,5 +4,5 @@ Sofya Dudko
 Sofa cho-cho-cho?
 try to add something...
 oooooooooooooh blin....
-da bliiiiiiiiiiiiiiiiiiiiiiiiiinnnnnnnnnnnnnnnnn :/
+da bliiiiiiiiiiiiiiiiiiiiiiiiiinnnnnnnnnnnnnnnnn :::
 
